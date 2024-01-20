@@ -1,1 +1,0 @@
-# espiritu-labadan.github.io
